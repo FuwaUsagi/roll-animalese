@@ -13,3 +13,8 @@ Grey for these excellent tools :)
 
 This project is not affiliated with Nintendo Co., Ltd.
 Animal Crossing is a copyright of Nintendo Co., Ltd.
+
+
+=============
+
+hi i just Yeeted this its nooot mine. its for personal useee
